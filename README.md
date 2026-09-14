@@ -32,7 +32,7 @@ Passionate video editor creating engaging YouTube videos, Reels, Shorts, and cin
 - Color grading & audio mixing
 
 ## 📧 Get In Touch
-- 📸 Instagram: [@your-handle]
+- 📸 Instagram: [https://www.instagram.com/ll_pirate._ll?stkn=MTN5b2d0eHc0Nnlxcg==]
 - 📹 YouTube: [your-channel]
 - 💌 Email: your-email@gmail.com
 
